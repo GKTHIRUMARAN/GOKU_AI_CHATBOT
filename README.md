@@ -43,4 +43,4 @@ Developer:
 
 Thirumaran G K
 B.Tech - Artificial Intelligence & Data Science
-LinkedIn
+LinkedIN--https://www.linkedin.com/in/thirumarangk-ai 
